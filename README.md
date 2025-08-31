@@ -6,7 +6,11 @@
 
 ### 🔥 Демонстрация Работы
 
-![HH-Vacancy-Analyzer_hd_converted](https://github.com/user-attachments/assets/b89f46f8-1e15-488a-8df8-ff1280188ed9)
+
+
+https://github.com/user-attachments/assets/14aab184-a88b-4bbc-a2ae-c165be71e373
+
+
 
 
 ---
